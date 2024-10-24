@@ -5,7 +5,9 @@ I'm a dog person 🐶
 Just started learning how to code 😓
 ------------------------------------
 
-School that I went : Atris | 2014 - 2022 | PCSHS Chonburi | 2023 - now |
+School that I went : 
+
+🔥 Atris | 2014 - 2022 | PCSHS Chonburi | 2023 - now | 🥶
 
 *   🌍  I'm based in Rayong, Thailand
 *   ✉️  You can contact me at [rachatapapakae2@gmail.com](mailto:rachatapapakae2@gmail.com)
